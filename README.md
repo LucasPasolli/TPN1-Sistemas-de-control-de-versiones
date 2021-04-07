@@ -1,2 +1,3 @@
 # Lucas Pasolli
-[a relative link](CV.md)
+[Click to CV](CV.md)
+[Click to Pull Request](pullrequest.md)
