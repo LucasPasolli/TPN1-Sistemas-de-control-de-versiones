@@ -1,4 +1,4 @@
-Lucas Pasolli
+Lucas Pasolli Explandor de Belleza
 
 La Calera, Cordoba 
 
