@@ -1,5 +1,4 @@
-Lucas Pasolli Maxisima Facha
-
+Lucas Pasolli Explandor de Facha
 La Calera, Cordoba 
 
 3516989458
